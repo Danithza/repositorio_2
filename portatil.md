@@ -12,3 +12,6 @@
            3. Laptop gamer.
 
            4. Laptop 2 en 1.
+
+           
+![portatil](https://images.ecestaticos.com/QCn4Bh-vevoKsux6Cmjj1oexwCg=/10x11:1915x1082/1338x752/filters:fill(white):format(jpg)/f.elconfidencial.com%2Foriginal%2Fc0c%2Fbf9%2Feec%2Fc0cbf9eec80d66a32d7c692c6f7b4277.jpg)
